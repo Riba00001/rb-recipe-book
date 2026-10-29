@@ -17,4 +17,4 @@
 - Add garlic and butter in a pan.
 - Later add tomato puree with salt.
 - Then add Pasta.
-- Garnish it with Oregano and Mozzarella.
+- Garnish it with Oregano and add grated Mozzarella.
