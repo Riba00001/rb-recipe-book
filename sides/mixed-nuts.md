@@ -12,3 +12,4 @@
 
 - Get the nuts
 - Mix the nuts
+- Maybe roast the nuts
